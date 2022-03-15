@@ -1,2 +1,2 @@
 # little-friends
-kleine Freunde
+kleine Freunde ganz gross
